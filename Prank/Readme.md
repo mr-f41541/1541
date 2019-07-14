@@ -1,1 +1,0 @@
-Limit ea KNTL
